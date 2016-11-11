@@ -1,2 +1,11 @@
 # hello-world
-Hello Everyone! This has been an incredibly shocking year. 2016 was quite a enlightening year so we may grow with more wisdom. 
+Hello Everyone! 
+
+
+I wish everyone peace and light
+
+Spread love and joy
+
+Touch all souls with the spark
+of your spirit
+
